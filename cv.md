@@ -1,7 +1,7 @@
 
 #### Piatrovich Vitali
 ***
-_vitalipiatrovich7@gmail.com_
+_v.........7@gmail.com_
 _Minsk,higher education Law degree_ 
 * _basic course of HTML, SCC_
 * _level of language: pre-intermediate_
